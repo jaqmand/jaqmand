@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning more cooking skills from my colleague.
 - 💞️ I’m looking to collaborate on businesses.
 - 📫 How to reach me my website - @as-helpline.square.site
-- 😄 Pronouns: she/her.
+- 😄 Pronouns: semi-proactive
 - ⚡ Fun fact: I loved to travel back in my 20s. 
 
 <!---
